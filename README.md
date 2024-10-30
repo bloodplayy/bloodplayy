@@ -1,7 +1,7 @@
 <p align="center">
   <b>im crazy and weird</b><br>
   
-  <img src="https://github.com/user-attachments/assets/e1544680-8785-4527-99e0-1b072f385ecc">
+  <img src="https://github.com/user-attachments/assets/ad8a5c49-a7a7-444d-8fff-3735a09f6fc0">
 
 
 <p align="center">
